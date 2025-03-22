@@ -61,6 +61,6 @@ This project is licensed under the MIT License.
 ## Contact
 For queries or contributions, feel free to reach out!
 
-📧 **Email:** your.email@example.com
+📧 **Email:** 988981amityadav@gmail.com
 
-🌐 **Website:** [your-website.com](#)
+🌐  [LinkedIn](https://www.linkedin.com/in/amityadav72)
